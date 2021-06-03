@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @Ninjadash54
-- 📫 How to reach me: djoshandrew@gmail.com or  at +1 (972) 824-244
